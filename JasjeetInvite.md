@@ -26,13 +26,13 @@ Number of Guests Invited ____
 
 Please RSVP by 28th February 2023
 
-Mobile: 07902 855638 (Ranjit)
+To
 
-Please note Non RSVP will be taken as non-attendance
+Mobile: 07902 855638 (Ranjit)
 
 Maiyan
 
-You are warmly invited to the Maiyan of our son
+You are warmly invited to the Maiyan of our beloved son
 
 Jasjeet
 
@@ -40,15 +40,11 @@ On Thursday 20th April 2023
 
 10.30 am
 
+At
+
 34 Castleview Road
 
 SL3 7NQ
-
-Please RSVP
-
-To
-
-Mobile: 07902 855638 (Ranjit)
 
 Sangeet & Jago Di Raat
 
@@ -68,7 +64,9 @@ At
 
 SL3 7NQ
 
-Please RSVP
+Number of Guests Invited ____
+
+RSVP by 28th February 2023
 
 To
 
@@ -84,19 +82,19 @@ Request the pleasure of your company to the auspicious
 
 occasion of the marriage of their beloved son
 
-Jasjeet Singh Suri
+Jasjeet
 
 Grandson of Late Mr Basant Singh & Late Mrs Chanan Kaur Suri
 
-Grandson of Late Mr Darshan Singh &Late Mrs Gurmit Kaur Jutla
+Grandson of Late Mr Darshan Singh & Late Mrs Gurmit Kaur Jutla
 
 With
 
-Manmeet Kaur Kalsi
+Manmeet
 
-Daughter of Mr Charanjit Singh Kalsi & Mrs Inderjeet Kaur Kalsi
+Daughter of Mr Charanjit Singh & Mrs Inderjeet Kaur Kalsi
 
-Saturday 22nd April 2023
+On Saturday 22nd April 2023
 
 At
 
@@ -116,7 +114,7 @@ Arrival of Bharat & Milni 09:00
 
 Tea & Refreshments 09:30
 
-Sehej Path Bhog 10:15
+Sehej Path Bhog 10:00
 
 Karmai 10:30
 
@@ -130,14 +128,18 @@ Radisson Blu Edwardian Heathrow Hotel
 
 140 Bath Rd, UB3 5AW
 
-With best compliments
+With Best Compliments from
 
-Suri Family& Jutla Family
+Suri Family & Jutla Family
 
 Number of Guests Invited ____
 
-Please RSVP by 28th February
+Please RSVP by 28th February 2023
+
+To
 
 Mobile: 07902 855638 (Ranjit)
+
+Please note Non-RSVP will be taken as non-attendance
 
 We kindly request no boxed gifts
